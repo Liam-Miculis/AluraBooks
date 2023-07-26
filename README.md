@@ -7,4 +7,3 @@ Prof. Vagnes Silva
 
 Turma:2ºMD
 Aluno: Liam Miculis nº02
-Aluno: Ana Paula Stresser nº05
